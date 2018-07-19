@@ -7,4 +7,4 @@ Python is much better.
 
 However, she would soon learn that things that seem hard at first get easier with more practice.
 
-One day, she kept sleeping and went back home to find out that she didn't want to become a failure.
+Everyday the unicorn kept learning and went back home to find out that it started to become second nature for her.
