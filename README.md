@@ -7,4 +7,4 @@ Python is much better.
 
 However, she would soon learn that things that seem hard at first get easier with more practice.
 
-Everyday she kept learning and went back to CSSI to find out that it started to become natural to her. 
+Everyday she kept learning and went back to CSSI to find out that it started to become second nature for her.
