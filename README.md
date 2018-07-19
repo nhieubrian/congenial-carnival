@@ -1,5 +1,5 @@
 # congenial-carnival
-Once there was a student who attended CSSI.
+Once there was a magical unicorn who attended the mystical yet mysterious CSSI.
 In the first week she learned Javascript, HTML, and CSS.
 She hates CSS.
 But Javascript is ok.
